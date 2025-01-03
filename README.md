@@ -28,7 +28,7 @@ Please use for travel
 
 ## Contribution 
 
-aangus98 
+I've had help from multiple tutors such as John, Sangeetha, and Eric
 
 ## Test 
 
